@@ -1,2 +1,2 @@
-# Brawl-stars-train
-Train your aim
+# chat with your frends(discord de chez wish)
+
